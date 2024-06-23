@@ -1,2 +1,4 @@
 # Realme
 some fish love to swim upstream.
+IN life's journey ,we often encounter challenges that test  our resillience and determination.during such times ,positive thinking can be our greatest ally.positive thinking is not just about maintaining  sunny outlook:its about embracing optimism,believing in our abilities,and having faiyh in the outcomes.its about seeing the glass as half-full,,not half-empty.
+if we will talk about real confidence is "in todays generation-era ""--jyachi  himmat tyachya  takatipeksha jast aste toch tyachya life madhe pudhe jato--"" and that's called as real confidence..thrill is doing that all things which makes you afraid of..so dare it,,face each challenge,tackle it ,fight for your goals and get it,,don't go with the flow make your own another stream as i mentioned allready above"--some fish love to swim upstream.>
